@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 - 🌱 I’m currently learning applied chemistry.
-- I've written a short that you might want to read.
+- I've written a short story that you might want to read.
 - 《楠》
 - 金色的阳光在闪耀，在空气中荡漾出美妙的图形，或如蝉翼，或如星点。天气晴朗，白云换衣，林间的风吹来，带来一阵凉爽。
 - 这是一个坡地。
